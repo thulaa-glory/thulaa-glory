@@ -1,4 +1,4 @@
-- 👋 Hi, I’m Kavin Prrasad Arjunan @thulaa-glory
+- 👋 Hi, I’m Kavin @thulaa-glory
 - 👀 I’m interested in Coding
 - 🌱 I’m learning something new everyday
 - 💞️ I’m looking to collaborate on any open projects
